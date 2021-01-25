@@ -1,0 +1,1 @@
+# yogama22.github.io
